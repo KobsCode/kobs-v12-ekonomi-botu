@@ -1,10 +1,17 @@
-**Arkadaşlar Selamlar Tekrardan,Bu V12 Uyumlu Botu Yaptık Ama,Rica Ediyorum Paylaşmayın Sizler İçin Bir Uğraş Gösteriyorum Burada,He Paylaşıcakmısınız İzin Alın Be Gardaşım,He Paylaşıyorsanızda Verdiğiniz Kişi Bi Zahmet Sunucuya Katılsın,Bizde İşimizi Görelim**
+# **Bilgilendirme**
 
+> **`Hepinize Merhaba Arkadaşlar Bu Videoda Yeni Hazırladığımız V12 Ekonomi Botunu Tanıttım,İyi Seyiler Diliyorum Tekrardan. Bu Tarz Videoların Devamı İçin Videoya Like ve Yorum Atmayı Unutmayın`**
 
-``Youtube``
+> [Videoya Gitmek İçin Tıkla](https://youtu.be/8js5okwvN1w) 
 
-**<https://www.youtube.com/ogünsertkobs>**
+> [Discord Sunucusuna Katılmak İçin Tıkla](https://discord.gg/axjXvA9cCa)
 
-``Discord``
+> 💳▸ Desteklemek için;
 
-**<https://discord.gg/NP7Ar2j>**
+> 💳▸ İninal barkod : 4 092180334644
+
+> 📊▸ Sponsorluk ve reklam için;
+
+> 📊▸ E-Posta adresi : kantasmehmetcan12@gmail.com
+
+> 🎮▸ Discord Nick : Kobs#0001
